@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yash Sharma
-- 👀 I’m interested in Web Developing
+- 👀 I’m interested in Web Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Sharma9274yash@gmail.com
 
